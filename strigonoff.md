@@ -1,5 +1,11 @@
 # Strigonoff de frango :chicken:
 
+#### Igredientes
+
+
+
+
+
 #### Modo de preparo
 
 ###### 1 - Em uma frigideira grande, derreta três colheres (sopa) da manteiga e doure o frango, aos poucos, em fogo alto.
